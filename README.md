@@ -1,3 +1,4 @@
+![Capture](https://user-images.githubusercontent.com/56051071/236837872-c7ad3d54-0dbe-4c27-9c35-23011f811ca8.PNG)
 
  
  Sales management software :
